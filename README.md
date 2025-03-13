@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning to code
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me email or eva.tease@gmail.com
+- 📫 How to reach me email or evam.tease@gmail.com
 - 😄 Pronouns: IDK
 - ⚡ Fun fact: I played way to much darksouls 2
 
