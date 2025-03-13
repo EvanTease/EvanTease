@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me email or evam.tease@gmail.com
-- 😄 Pronouns: IDK
+- 😄 Pronouns: IDK you tell me
 - ⚡ Fun fact: I played way to much darksouls 2
 
 <!---      |\      _,,,---,,_
